@@ -1,4 +1,4 @@
-# privacy-policies
+# Política de Privacidad
 Política de privacidad de apps
 
 Última actualización: 30 de Mayo de 2026
